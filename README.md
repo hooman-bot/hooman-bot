@@ -1,1 +1,1 @@
-["jancok","anjing","kontol","memek,"jembut"]
+Whatsapp.com ["085742894351"]
